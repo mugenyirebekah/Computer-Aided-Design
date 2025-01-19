@@ -1,1 +1,1 @@
-Mostly learning how to use SolidWORKS
+Mostly learning how to use SolidWORKS.
